@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @lihexin88 ，my main blog is here [wp.leorain.cn](https://leorain.cn)
+- 👋 Hi, I’m @lihexin88 ，my main blog is here [leorain.cn](https://leorain.cn)
